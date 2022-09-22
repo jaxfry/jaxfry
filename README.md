@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jaxfry
+- 👀 I’m interested in volleyball, coding and minecraft
+- 🌱 I’m currently learning javascript
+- 📫 How to reach me? Please email me at jaxfry999@gmail.com
+- Discord? Yes I have a discord please DM me here: jaxfry#6198
